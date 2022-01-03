@@ -1,1 +1,1 @@
-# rsschool-cv
+https://summernightsky.github.io/rsschool-cv/
